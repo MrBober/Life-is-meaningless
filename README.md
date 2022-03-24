@@ -1,3 +1,8 @@
+# Life-is-meaningless
+Life is meaningless and we're all gonna die - in all (not really) languages
+
+<hr>
+
 Die lewe is betekenisloos en ons gaan almal dood!
 החיים חסרי משמעות וכולנו נמות!
 A vida não tem sentido e todos nós vamos morrer!
